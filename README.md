@@ -11,6 +11,11 @@
 Ο θεσμός του ΣΕΠ υποστηρίζεται στην Δευτεροβάθμια Εκπαίδευση μέσω του 
 
 https://dide-new.fth.sch.gr/sep/?page_id=40
+
 https://www.esos.gr/arthra/76688/odigies-gia-tin-ylopoiisi-toy-sholikoy-epaggelmatikoy-prosanatolismoy-tis-g-taxis
+
+https://blogs.sch.gr/kesyplam/
+
+https://www.minedu.gov.gr/aei-9/nomothesia-aei/298-uncategorised/2397-sep
 
 
